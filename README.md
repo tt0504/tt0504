@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Alyson
 - 👀 I’m interested in movies
 - 🌱 I’m currently learning coding
-- 💞️ I’m looking to collaborate on study
+- 💞️ I’m looking to collaborate on business
 - 📫 How to reach me Email：a0971asdf@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
